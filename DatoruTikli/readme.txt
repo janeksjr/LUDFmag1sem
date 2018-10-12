@@ -1,0 +1,1 @@
+Šeit datoru tīklu mājasdarbi.
